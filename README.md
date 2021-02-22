@@ -1,2 +1,0 @@
-# VURKAC Movie Theater MS
- 
